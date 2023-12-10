@@ -1,1 +1,1 @@
-# kolodischi-two
+# kolodischi-שְׁנֵי
